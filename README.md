@@ -1,5 +1,6 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂. ₊ ⊹ . ₊˖ . ₊. ₊ ⊹ . ₊˖ . ₊. ₊ ⊹ . ₊˖ . ₊
-<img width="720" height="540" alt="7be4d4f2c83c04367802482b079f3e37" src="https://github.com/user-attachments/assets/0d481b28-c61e-41e0-b6d6-a1a6489049a2" />
+<img width="500" height="280" alt="7be4d4f2c83c04367802482b079f3e37" src="https://github.com/user-attachments/assets/0d481b28-c61e-41e0-b6d6-a1a6489049a2" />
+
 ⠀⠀⣤⣶⡿⠿⠿⠿⠿⣂⡀⠀⠀⢀⣐⡿⠿⠿⠿⣷⣦⣤⠀⠀
 ⢠⡿⠛⣤⣴⣶⣶⣶⣶⣤⡔⠠⠄⢢⣤⣶⣶⣶⣶⣦⣤⠛⣶⢠
 ⣿⠀⣼⠻⣿⣿⣿⣿⣿⣿⣿⣶⣶⣿⣿⣿⣿⣿⣿⣿⠟⣧⡈⣿
@@ -12,4 +13,5 @@
 ⠀⠀⠀⠀⠀⠺⢦⡀⠈⠿⣿⣿⣿⣿⠿⠁⠀⣶⡿⠃⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠹⢧⡀⠜⠻⠟⠣⠀⣴⡿⠃⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠺⢶⡶⠟⠋⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
 <img width="500" height="280" alt="9391cdafe739ae11eeb04b904835e643" src="https://github.com/user-attachments/assets/53e27946-381a-4999-a98a-cd7b2dae4f60" />
